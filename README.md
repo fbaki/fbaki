@@ -1,6 +1,5 @@
-oi meu nome e felipe
+meu nome e felipe
 
-vou usar essqa merda 
 
 meu app favorito e [fortnite](https://fortnitetracker.com/profile/search?q=foxminegames123) 
 
